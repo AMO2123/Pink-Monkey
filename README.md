@@ -1,1 +1,2 @@
-pinkmonkey-logo.pngAlways Fun
+ Pink-Monkey
+Always Fun
